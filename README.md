@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @bobizbotmd
-- 👀 I’m interested in bots
+- 👀 Owner : Noureddine ouafy
+- ♥ my instagram : http://instagram.com/noureddine_ouafy
 
 
 <!---
